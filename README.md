@@ -36,7 +36,3 @@ Our support extends beyond just tutoring sessions. From "Take my assessment" ser
 <b>Elevate Your Nursing Career with Us</b>
 
 Embarking on the NURS FPX 4020 series with our expert tutoring services means setting yourself up for success. With personalized support, expert guidance, and comprehensive resources, you're not just preparing for assessments; you're preparing for a thriving career in nursing.
-
-Take the first step towards excellence in your NURS FPX 4020 assessments.
-
-<a href="https://www.etutors.us/>Contact us today</a> and discover how our expert tutoring can transform your nursing education journey.
